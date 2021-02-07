@@ -1,0 +1,1 @@
+Black forest cake is wonderful example of German baking tradition. Black Forest Cake is a different chocolate cake with a high layer of cream. Black Forest Cake is a creamy cake loved by anyone with a sweet tooth.
